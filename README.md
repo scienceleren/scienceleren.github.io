@@ -1,2 +1,0 @@
-# scienceleren.github.io
-
